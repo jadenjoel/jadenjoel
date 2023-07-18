@@ -15,7 +15,7 @@
 
 - ⚡ Fun fact I can fit a ginger biscuit in each cheek. Yeah, you got it - sideways.
 
-- ⚡ Another fun fact **Every time I crack an egg I have to say "Oh well, you can't make an omelette without breaking a few eggs!"; And that's even when I'm just doing them scrambled. Is that an OCD? Or am I just strange? Both, you say?**
+- ⚡ Final fun fact **Every time I crack an egg I have to say "Oh well, you can't make an omelette without breaking a few eggs!"; And that's even when I'm just doing them scrambled. Is that an OCD?**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
