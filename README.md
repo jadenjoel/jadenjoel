@@ -6,8 +6,6 @@
 
 - 🔭 I’m currently working on **quieting the mind**
 
-- 👨‍💻 All of my projects are available at [https://jadenjoel.vercel.app/](https://jadenjoel.vercel.app/)
-
 - 💬 Ask me about **NDE**
 
 - 📫 How to reach me **jadenjoel1111@gmail.com**
